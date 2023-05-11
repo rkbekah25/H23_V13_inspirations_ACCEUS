@@ -28,6 +28,11 @@
    <br>
   https://youtube.com/shorts/QQUohYC_6Gc?feature=share 
    <br>
+   - Relations humaines 
+   - Isolation
+   - Société
+   - Esapces publics
+   <br>
     <br>
 <h2> CONTAINER BY MEGHNA SINGH & SIMON WOOD <h2>
   <img src="https://github.com/rkbekah25/H23_V13_inspirations_ACCEUS/assets/112128161/e49f3922-2732-43a4-b78e-4c9498838d8f">
