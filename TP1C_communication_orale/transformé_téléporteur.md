@@ -2,12 +2,13 @@
 <img src="https://github.com/rkbekah25/H23_V13_inspirations_ACCEUS/assets/112128161/e4b34fb9-31a0-4121-83c8-35a8f1f4fea7">
   <br>
 <h3> - Janvier 2023 <h3>
-  <BR>
+  <br>
  <h3>    - 75 minutes <h3>
-  <BR>
+  <br>
  <h3>    - Immersive <h3>
-   <BR>
+   <br>
   <h3>   - Capacité de 400 personnes <h3>
+    <BR>
     
  <h2> Oeuvres en exposition <h2>
   <h3> - Tokyo Light Odyssey de WoW 
