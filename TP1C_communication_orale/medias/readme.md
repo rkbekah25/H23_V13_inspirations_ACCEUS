@@ -18,7 +18,7 @@ https://youtu.be/ipGwJVAUXBQ
 https://youtube.com/shorts/YvnedLnosDs?feature=share
 https://youtube.com/shorts/ttUlQt8XsZA?feature=share 
 <br>
-![thumbnail_IMG_1713](https://github.com/rkbekah25/H23_V13_inspirations_ACCEUS/assets/112128161/e4b34fb9-31a0-4121-83c8-35a8f1f4fea7) 
+
 
 
 
