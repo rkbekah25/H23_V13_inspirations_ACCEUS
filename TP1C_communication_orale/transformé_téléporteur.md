@@ -1,6 +1,5 @@
 <h1> OASIS IMMERSION : TRANSFORMÉ - GALERIE TÉLÉPORTEUR <h1>
-<img src=(https://github.com/rkbekah25/H23_V13_inspirations_ACCEUS/assets/112128161/eb589419-e4ee-4d7a-84ec-3ab37728a3a6)>
-
+<img src=![thumbnail_IMG_1713](https://github.com/rkbekah25/H23_V13_inspirations_ACCEUS/assets/112128161/e4b34fb9-31a0-4121-83c8-35a8f1f4fea7)>
 <h2> Oeuvres en exposition <h2>
   <h3> - Tokyo Light Odyssey de WoW 
     <br>
