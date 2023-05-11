@@ -29,8 +29,11 @@
   https://youtube.com/shorts/QQUohYC_6Gc?feature=share 
    <br>
    - Relations humaines 
-   - Isolation
+   <br>
+   - Isolation, solitude
+   <br>
    - Société
+   <br>
    - Esapces publics
    <br>
     <br>
@@ -42,6 +45,14 @@
   https://youtu.be/n2rYf4YqcL4 
   <br>
   https://youtu.be/ipGwJVAUXBQ
+  <br>
+   - Esclavage, Côte d'Ivoire 1974.
+   <br>
+   - Commercialisation
+   <br>
+   - Gens = Produits
+   <br>
+   - Participation directe/indirecte, discussion
    <br>
    <br>
   <h2> FERENJ BY AINSLEE ALEM ROBSON <h2>
@@ -50,6 +61,16 @@
     https://youtube.com/shorts/YvnedLnosDs?feature=share
     <br>
     https://youtube.com/shorts/ttUlQt8XsZA?feature=share 
+    <br>
+   - Fusion de cultures (Cleveland - Addis Ababa)
+   <br>
+   - Dialogue, musique
+   <br>
+   - Conflits identitaires
+   <br>
+   - Appartenance
+   <br>
+   - Mosaïque de réalité, particules transportées
     <br>
     <br>
  <h2> EXPÉRIENCE VÉCUE <h2>
