@@ -13,7 +13,7 @@ https://youtu.be/ipGwJVAUXBQ
 ![ferenj_2](https://github.com/rkbekah25/H23_V13_inspirations_ACCEUS/assets/112128161/dd5ffbde-ae82-4ab6-9012-eec6bb63974d)
 ![ferenj_1](https://github.com/rkbekah25/H23_V13_inspirations_ACCEUS/assets/112128161/10224773-ee3e-4d8c-ba24-e5718917f902)
 https://youtube.com/shorts/YvnedLnosDs?feature=share
-https://youtube.com/shorts/ttUlQt8XsZA?feature=share
+https://youtube.com/shorts/ttUlQt8XsZA?feature=share 
 
 
 
