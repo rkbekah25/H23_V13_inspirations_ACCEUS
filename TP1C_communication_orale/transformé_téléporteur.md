@@ -13,7 +13,7 @@
  <h2> Oeuvres en exposition <h2>
   <h3> - Tokyo Light Odyssey de WoW 
     <br>
-       - Container de Meghna Singh et Simon Wood 
+       - Container de Meghna Singh et Simon Wood
     <br>
        - Ferenj de Ainslee Alem Robson
     <br>
@@ -48,10 +48,10 @@
     <br>
     <br>
  <h1> EXPÉRIENCE VÉCUE <h1>
-  <h2> - Ambiance stimulante <h2>
+   <h3> - Ambiance stimulante
     <br>
-   <h2> - Interprétation libre <h2>
-   
+       - Voyage 
+    <br>
     
   
 
