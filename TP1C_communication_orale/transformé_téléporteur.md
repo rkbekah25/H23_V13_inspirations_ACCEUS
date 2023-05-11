@@ -3,11 +3,11 @@
   <br>
 <h3> - Janvier 2023 <h3>
   <br>
- <h3>    - 75 minutes <h3>
+   - 75 minutes 
   <br>
- <h3>    - Immersive <h3>
+   - Immersive 
    <br>
-  <h3>   - Capacité de 400 personnes <h3>
+    - Capacité de 400 personnes, 2200m3
     <BR>
     
  <h2> Oeuvres en exposition <h2>
@@ -92,6 +92,13 @@
      <br>
      <img src="https://github.com/rkbekah25/H23_V13_inspirations_ACCEUS/assets/112128161/e97866b6-cfcd-4e83-b9db-434cdd14dd20">
     <img src="https://github.com/rkbekah25/H23_V13_inspirations_ACCEUS/assets/112128161/52fd244f-334e-4408-8a26-92125f61844f">
+   <br>
+   <br>
+   <h2> RÉFÉRENCES <h2>
+   https://oasis.im/transforme/
+   <br>
+   https://www.journaldemontreal.com/2023/01/21/lumineuse-transformation
+   
      
     
   
